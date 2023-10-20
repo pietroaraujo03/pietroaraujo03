@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail **pietroaraujo4546@gmail.com**
 
-- 📄 Tenho experiências com suporte ténico de T.I e estou me aperfeiçoando na Programação [https://www.linkedin.com/in/pietro-de-ara%C3%BAjo-jardim-b4013922a/](https://www.linkedin.com/in/pietro-de-ara%C3%BAjo-jardim-b4013922a/)
+- 📄 Tenho experiências com suporte técnico de T.I e estou me aperfeiçoando na Programação [https://www.linkedin.com/in/pietro-de-ara%C3%BAjo-jardim-b4013922a/](https://www.linkedin.com/in/pietro-de-ara%C3%BAjo-jardim-b4013922a/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
